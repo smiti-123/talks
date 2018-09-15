@@ -7,7 +7,7 @@ force audience to follow you around and reduces boredom.
 
 Use the full stage for your talk. Dont just stand at one place. Standing
 just on the podium is the worst thing to do.
-
+And it reduces a mental fear.
 #### 2. Don't speak in a monotonous voice
 Try to vary your voice to suit the
 phases of the talk. Dont make it sound like a boring lecture at the same
